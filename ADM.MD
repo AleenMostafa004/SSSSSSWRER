@@ -2,9 +2,7 @@ DCDCD
 DCCDC
 CDDV
 VD
-VDV
-DVD
-VDV
-V
-DV
-DV
+VDVxc
+scc
+scssf
+ئئئئئئئئئئئئ
